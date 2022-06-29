@@ -2,9 +2,9 @@
 
 yakyak yeaaaaa
 
-🫠🫠🫠
+🫠🫠🫠                            Baby Shark, doo doo doo doo doo, doo, doo , baby shark doo,doo doo doo doo doo, baby shark!!
 
-This is a melting face emoji
+This is a melting face emoji        "  n( ^ O ^ )n "
 
 Worry-free sandbox repository for learning.
 
